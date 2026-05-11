@@ -1,2 +1,2 @@
-# ativ.-do-mario-para-deixar-salvo-
-pra n perder ne
+# 𝄞₊˚⊹ Joguinho de Jokenpô ୭ ᵎᵎ 🧁
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
